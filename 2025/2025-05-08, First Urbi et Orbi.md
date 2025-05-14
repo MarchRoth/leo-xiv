@@ -18,6 +18,7 @@ To the Church of Rome, a special greeting: Together we must seek how to be a mis
 
 \[In Italian] Today, on the day of the Supplication to Our Lady of Pompeii, may our Mother Mary walk with us, remain close to us, and help us with her intercession and love. So let us pray together — for this new mission, for the whole Church, and for peace in the world. And let us ask this special grace from Mary, our Mother.
 
-Ave Maria…
 
-Amen.
+***Ave Maria…***
+
+**Amen.**
