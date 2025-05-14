@@ -11,8 +11,6 @@ Thank you, Pope Francis!
 
 I wish to thank my brother Cardinals who have chosen me to be Peter’s successor and to walk with you as one Church, always seeking peace and justice.
 
-  
-
 I am a son of Saint Augustine — an Augustinian — who said, “With you I am a Christian, for you I am a bishop.” In this spirit, we walk together toward the homeland God has prepared for us.
 
 To the Church of Rome, a special greeting: Together we must seek how to be a missionary Church — a Church that builds bridges of dialogue, always open to welcome, like this very square, with open arms, all those in need of our charity, our presence, our love. To all of you — brothers and sisters from Rome, from Italy, from all over the world — we want to be a Synodal Church, a Church that walks, that always seeks peace, seeks charity, and remains close especially to those who suffer.
