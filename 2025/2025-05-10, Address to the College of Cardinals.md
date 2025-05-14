@@ -3,7 +3,7 @@
 Thank you very much, Your Eminence. Before taking our seats, let us begin with a prayer, asking the Lord to continue to accompany this College, and above all the entire Church with this spirit, with enthusiasm, but also with deep faith. Let us pray together in Latin.
 
 
-***Pater noster… Ave Maria…***
+***Pater Noster… Ave Maria…***
 
 
 In the first part of this meeting, there will be a short talk with some reflections that I would like to share with you. But then there will be a second part, a bit like the opportunity that many of you had asked for: a sort of dialogue with the College of Cardinals to hear what advice, suggestions, proposals, concrete things, which have already been discussed in the days leading up to the Conclave.
