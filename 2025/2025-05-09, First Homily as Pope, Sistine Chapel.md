@@ -32,28 +32,26 @@ These are contexts where it is not easy to preach the Gospel and bear witness to
 
 Today, too, there are many settings in which Jesus, although appreciated as a man, is reduced to a kind of charismatic leader or superman. This is true not only among non-believers but also among many baptized Christians, who thus end up living, at this level, in a state of practical atheism.
 
-This is the world that has been entrusted to us, a world in which, as Pope Francis taught us so many times, we are called to bear witness to our joyful faith in Jesus the Savior. Therefore, it is essential that we too repeat, with Peter: “You are the Christ, the Son of the living God”.
+This is the world that has been entrusted to us, a world in which, as Pope Francis taught us so many times, we are called to bear witness to our joyful faith in Jesus the Savior. Therefore, it is essential that we too repeat, with Peter: “You are the Christ, the Son of the living God”.[^10]
 
-It is essential to do this, first of all, in our personal relationship with the Lord, in our commitment to a daily journey of conversion. Then, to do so as a Church, experiencing together our fidelity to the Lord and bringing the Good News to all.
+It is essential to do this, first of all, in our personal relationship with the Lord, in our commitment to a daily journey of conversion. Then, to do so as a Church, experiencing together our fidelity to the Lord and bringing the Good News to all.[^11]
 
-I say this first of all to myself, as the Successor of Peter, as I begin my mission as Bishop of Rome and, according to the well-known expression of Saint Ignatius of Antioch, am called to preside in charity over the universal Church. Saint Ignatius, who was led in chains to this city, the place of his impending sacrifice, wrote to the Christians there: “Then I will truly be a disciple of Jesus Christ, when the world no longer sees my body”. Ignatius was speaking about being devoured by wild beasts in the arena – and so it happened – but his words apply more generally to an indispensable commitment for all those in the Church who exercise a ministry of authority. It is to move aside so that Christ may remain, to make oneself small so that he may be known and glorified, to spend oneself to the utmost so that all may have the opportunity to know and love him.
+I say this first of all to myself, as the Successor of Peter, as I begin my mission as Bishop of Rome and, according to the well-known expression of Saint Ignatius of Antioch, am called to preside in charity over the universal Church.[^12] Saint Ignatius, who was led in chains to this city, the place of his impending sacrifice, wrote to the Christians there: “Then I will truly be a disciple of Jesus Christ, when the world no longer sees my body”[^13]. Ignatius was speaking about being devoured by wild beasts in the arena – and so it happened – but his words apply more generally to an indispensable commitment for all those in the Church who exercise a ministry of authority. It is to move aside so that Christ may remain, to make oneself small so that he may be known and glorified,[^14] to spend oneself to the utmost so that all may have the opportunity to know and love him.
 
 May God grant me this grace, today and always, through the loving intercession of Mary, Mother of the Church.
 
+___
 [^1]: Ps 98:1
-
 [^2]: Mt 16:16
-
 [^3]: Gaudium et Spes, 22
-
 [^4]: Jer 1:5
-
 [^5]: Mk 16:15
-
 [^6]: 1 Cor 4:2
-
 [^7]: Rev 21:10
-
 [^8]: 1 Pet 2:9
-
 [^9]: Mt 16:13
+[^10]: Mt 16:16
+[^11]: Lumen Gentium, 1
+[^12]: Letter to the Romans, Prologue
+[^13]: Letter to the Romans, IV, 1
+[^14]: Jn 3:30
