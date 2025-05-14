@@ -1,5 +1,6 @@
 ## May 12th, 2025: Address to Representatives of the Media
-
+**Location**: *Paul VI Audience Hall*
+___
 \[Italian] *Buongiorno!*
 
 \[English] Good morning and thank you for this wonderful reception. They say when they clap at the beginning it does not matter much, if you are still awake at the end and you still want to applaud, thank you very much! 

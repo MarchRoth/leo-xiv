@@ -1,5 +1,6 @@
-## May 10th, 2025: Homily at the Tomb of St. Peter
-
+## May 10th, 2025: Homily
+**Location**: *Tomb of Saint Peter*
+___
 I will begin with a word in English and maybe another one in Italian.
 
 The Gospel that we just heard on this Sunday of the Good Shepherd[^1]: My sheep listen to my voice, I know them and they follow me. I think about the Good Shepherd, especially on this Sunday, which is so significant in Easter time. While we celebrate the beginning of this new mission of the ministry that the Church has called me to, there is no better example than Jesus Christ himself, to whom we give our lives and whom we depend on. Jesus Christ whom we follow, he is the Good Shepherd, and he is the one who gives us life: the way and the truth and the life. So we celebrate with joy this day and we deeply appreciate your presence here.

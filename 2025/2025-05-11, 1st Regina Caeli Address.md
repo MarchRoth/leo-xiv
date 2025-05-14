@@ -1,5 +1,6 @@
 ## May 11th, 2025: 1st Regina Caeli Address
-
+**Location**: *Saint Peter's Square*
+___
 Dear brothers and sisters, happy Sunday!
 
 I consider it a gift from God that the first Sunday of my service as Bishop of Rome is Good Shepherd Sunday, the fourth Sunday of Easter. On this Sunday, we always hear proclaimed at Mass a passage from the tenth chapter from the Gospel of John, where Jesus reveals himself as the true Shepherd: who knows and loves his sheep and gives his life for them.

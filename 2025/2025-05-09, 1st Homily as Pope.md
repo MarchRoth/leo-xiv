@@ -1,5 +1,6 @@
-## May 9th 2015: 1st Homily as Pope, Sistine Chapel
-
+## May 9th 2015: 1st Homily as Pope
+**Location:** *Sistine Chapel*
+___
 I will begin with a word in English, and the rest is in Italian. But I want to repeat the words from the responsorial Psalm: “I will sing a new song to the Lord, because he has done marvels.”[^1]
 
 And indeed, not just with me but with all of us. My brother cardinals, as we celebrate this morning, I invite you to recognize the marvels that the Lord has done, the blessings that the Lord continues to pour out on all of us through the ministry of Peter.

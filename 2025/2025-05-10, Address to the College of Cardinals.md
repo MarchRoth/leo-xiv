@@ -1,5 +1,6 @@
 ## May 10th, 2025 - Address to the College of Cardinals
-
+**Location**: *Paul VI Audience Hall*
+___
 Thank you very much, Your Eminence. Before taking our seats, let us begin with a prayer, asking the Lord to continue to accompany this College, and above all the entire Church with this spirit, with enthusiasm, but also with deep faith. Let us pray together in Latin.
 
 
