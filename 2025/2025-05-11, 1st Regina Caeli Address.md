@@ -1,4 +1,4 @@
-## May 11th, 2025: First Regina Caeli Address
+## May 11th, 2025: 1st Regina Caeli Address
 
 Dear brothers and sisters, happy Sunday!
 
