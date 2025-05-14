@@ -43,7 +43,7 @@ May God grant me this grace, today and always, through the loving intercession o
 ___
 [^1]: Ps 98:1
 [^2]: Mt 16:16
-[^3]: Gaudium et Spes, 22
+[^3]: *Gaudium et Spes*, 22
 [^4]: Jer 1:5
 [^5]: Mk 16:15
 [^6]: 1 Cor 4:2
@@ -51,7 +51,7 @@ ___
 [^8]: 1 Pet 2:9
 [^9]: Mt 16:13
 [^10]: Mt 16:16
-[^11]: Lumen Gentium, 1
-[^12]: Letter to the Romans, Prologue
-[^13]: Letter to the Romans, IV, 1
+[^11]: *Lumen Gentium*, 1
+[^12]: *Letter to the Romans*, Prologue
+[^13]: *Letter to the Romans*, IV, 1
 [^14]: Jn 3:30
