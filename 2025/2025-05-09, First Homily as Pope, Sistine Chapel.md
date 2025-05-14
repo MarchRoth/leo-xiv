@@ -6,7 +6,7 @@ And indeed, not just with me but with all of us. My brother cardinals, as we cel
 
 You have called me to carry that cross, and to be blessed with that mission, and I know I can rely on each and every one of you to walk with me, as we continue as a Church, as a community of friends of Jesus, as believers to announce the good news, to announce the Gospel.
 
-[Continuing in Italian] “You are the Christ, the Son of the living God”[^2]. In these words, Peter, asked by the Master, together with the other disciples, about his faith in him, expressed the patrimony that the Church, through the apostolic succession, has preserved, deepened, and handed on for 2,000 years.
+\[Continuing in Italian] “You are the Christ, the Son of the living God”[^2]. In these words, Peter, asked by the Master, together with the other disciples, about his faith in him, expressed the patrimony that the Church, through the apostolic succession, has preserved, deepened, and handed on for 2,000 years.
 
 Jesus is the Christ, the Son of the living God: the one Savior who alone reveals the face of the Father.
 

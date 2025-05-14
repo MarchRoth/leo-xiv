@@ -15,9 +15,9 @@ I am a son of Saint Augustine — an Augustinian — who said, “With you I am 
 
 To the Church of Rome, a special greeting: Together we must seek how to be a missionary Church — a Church that builds bridges of dialogue, always open to welcome, like this very square, with open arms, all those in need of our charity, our presence, our love. To all of you — brothers and sisters from Rome, from Italy, from all over the world — we want to be a Synodal Church, a Church that walks, that always seeks peace, seeks charity, and remains close especially to those who suffer.
 
-[In Spanish] And if you allow me a word, a greeting to everyone and especially to my dear Diocese of Chiclayo, Peru, where a faithful people have accompanied their bishop, shared their faith and have given so much, so much to continue to be a faithful Church of Jesus Christ.
+\[In Spanish] And if you allow me a word, a greeting to everyone and especially to my dear Diocese of Chiclayo, Peru, where a faithful people have accompanied their bishop, shared their faith and have given so much, so much to continue to be a faithful Church of Jesus Christ.
 
-[In Italian] Today, on the day of the Supplication to Our Lady of Pompeii, may our Mother Mary walk with us, remain close to us, and help us with her intercession and love. So let us pray together — for this new mission, for the whole Church, and for peace in the world. And let us ask this special grace from Mary, our Mother.
+\[In Italian] Today, on the day of the Supplication to Our Lady of Pompeii, may our Mother Mary walk with us, remain close to us, and help us with her intercession and love. So let us pray together — for this new mission, for the whole Church, and for peace in the world. And let us ask this special grace from Mary, our Mother.
 
 Ave Maria…
 

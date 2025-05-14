@@ -28,9 +28,9 @@ On the other hand, I have welcomed with satisfaction the announcement of the cea
 
 But how many other conflicts there are in the world! I entrust this heartfelt appeal to the Queen of Peace, so that she may present it to the Lord Jesus to obtain for us the miracle of peace.
 
-And now I affectionately greet you all, Romans and pilgrims from various countries. I greet the members of the British and Foreign Bible Society, the group of doctors from Granada (Spain), the faithful of Malta, Panama, Dallas \[Texas], Valladolid, Torrelodones \[Madrid], Montesilvano, and Cinisi \[Palermo].
+And now I affectionately greet you all, Romans and pilgrims from various countries. I greet the members of the British and Foreign Bible Society, the group of doctors from Granada \[Spain], the faithful of Malta, Panama, Dallas \[Texas], Valladolid, Torrelodones \[Madrid], Montesilvano, and Cinisi \[Palermo].
 
-I greet the participants in the “Let’s choose life” demonstration, the young people of the Fraternity of Blessed Mary Immaculate and Saint Francis of Assisi, of Reggio Emilia.
+I greet the participants in the “Let’s Choose Life” demonstration, the young people of the Fraternity of Blessed Mary Immaculate and Saint Francis of Assisi, of Reggio Emilia.
 Today in Italy and in other countries we celebrate Mother’s Day. I send a fond greeting to all mothers, with a prayer for them, and for those who are already in Heaven.
 Happy Mother’s Day to all mothers! Thank you all, a happy Sunday to everyone!
 
