@@ -1,4 +1,3 @@
-
 ## May 8th, 2025: First Address as Pope
 
 “Peace be with you!” Dearest brothers and sisters, this is the first greeting of the Risen Christ, the Good Shepherd who laid down His life for the flock of God. I too wish that this greeting of peace may enter our hearts and reach your families, all people wherever they may be, every nation, the whole world: peace be with you. This is the peace of the Risen Christ—a peace that is disarmed and disarming, humble and enduring. It comes from God, who loves us all unconditionally.
