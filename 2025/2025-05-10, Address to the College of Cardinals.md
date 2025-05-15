@@ -44,11 +44,11 @@ ___
 [^6]: Mk 4:1-20
 [^7]: Ex 13:21
 [^8]: *Evangelii Gaudium*, 11
-[^9]: Ibid., 9
-[^10]: Ibid., 33
-[^11]: Ibid., 119-120
-[^12]: Ibid., 123
-[^13]: Ibid., 53
-[^14]: Ibid., 84; *Gaudium et Spes*, 1-2
+[^9]: *ivi*., 9
+[^10]: *ivi*., 33
+[^11]: *ivi*., 119-120
+[^12]: *ivi*., 123
+[^13]: *ivi*., 53
+[^14]: *ivi*., 84; *Gaudium et Spes*, 1-2
 [^15]: *Spe Salvi*, 2; *Spes Non Confundit*, 3
 [^16]: Message *"Qui Fausto Die"*, 22 June 1963

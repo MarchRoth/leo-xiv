@@ -32,7 +32,7 @@ ___
 [^2]: *Orientalium Dignitas*
 [^3]: *Orientale Lumen*, 5
 [^4]: St. Ephrem the Syrian, *Homily on our Lord*, 9
-[^5]: *Sermones ascetici*, 1, 5
+[^5]: St. Isaac of Nineveh, *Sermones ascetici*, 1, 5
 [^6]: Jn 20:19, 21, 26
 [^7]: Jn 14:27
 [^8]: Mt 5:14
