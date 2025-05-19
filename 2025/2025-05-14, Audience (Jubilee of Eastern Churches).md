@@ -27,7 +27,7 @@ Thank you, dear brothers and sisters of the East, the lands where Jesus, the Sun
 
 I thank you for this, and in cordially giving you my blessing, I ask you to pray for the Church and to raise your powerful prayers of intercession for my ministry. Thank you!
 
-___
+
 [^1]: *Address to Participants in the Meeting of Aid Agencies for the Oriental Churches* \[ROACO]
 [^2]: *Orientalium Dignitas*
 [^3]: *Orientale Lumen*, 5
