@@ -1,4 +1,4 @@
-## May 11th, 2025: 1st Regina Caeli Address
+## May 11th, 2025: Regina Caeli Address #1
 **Location**: *Saint Peter's Square*
 ___
 Dear brothers and sisters, happy Sunday!

@@ -1,3 +1,4 @@
+## May 15th, 2025: Audience with Brothers of the Christian Schools
 **Location**: *Clementine Hall*
 ___
 In the name of the Father, of the Son, and of the Holy Spirit, peace be with you. 
